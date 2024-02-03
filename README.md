@@ -11,3 +11,5 @@
 🌟 Mi visión: Aspirando a ser reconocida como una programadora Fullstack excepcional. Creo en el poder de la colaboración y la comunidad, así que únete a mi viaje y exploremos juntos el fascinante universo del desarrollo de software.
 
 📫 ¡Hablemos de código! ¡Conéctate y descubramos cómo podemos crear algo increíble juntos! 🚀
+
+![image](https://github.com/xxDianaPadilla/xxDianaPadilla/assets/139471881/3e4d7c9e-8345-4ed4-9a57-b1af8b815a6b)
