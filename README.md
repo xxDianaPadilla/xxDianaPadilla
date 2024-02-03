@@ -13,3 +13,6 @@
 📫 ¡Hablemos de código! ¡Conéctate y descubramos cómo podemos crear algo increíble juntos! 🚀
 
 ![image](https://github.com/xxDianaPadilla/xxDianaPadilla/assets/139471881/3e4d7c9e-8345-4ed4-9a57-b1af8b815a6b)
+![image](https://github.com/xxDianaPadilla/xxDianaPadilla/assets/139471881/de579db1-14e1-4344-b0a2-5c756a3fd23e)
+![image](https://github.com/xxDianaPadilla/xxDianaPadilla/assets/139471881/ab70f150-e91e-43f2-b84f-c66e1e25ac22)
+![image](https://github.com/xxDianaPadilla/xxDianaPadilla/assets/139471881/0f836076-e42c-4257-a0bf-45c345b79072)
